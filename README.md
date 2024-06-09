@@ -8,3 +8,6 @@ Stable “hey, how are you” Unstable “hey bbg, wanna have some ‘fun’~?
 ******without "sexy dance" 
 without "sexy dance" ごめんなさい
 Happy Birthday ! Lo Siento
+The Thief: ごめんなさい
+Mira: ごめんなさい
+Happy Birthday !;;; Lo Siento.'.'.'
